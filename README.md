@@ -16,9 +16,9 @@
 
 - 🤝 I’m looking for help with **Cyber MASTERS**
 
-- 💬 Ask me about **fornt-end,networking**
+- 💬 Ask me about **fornt-end,networking,cyber**
 
-- 📫 How to reach me **aashishgoudar@gmail.com**
+- 📫 How to reach me **niishith23@gmail.com**
 
 - ⚡ Fun fact **lazy but active !!**
 
